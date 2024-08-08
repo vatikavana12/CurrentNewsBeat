@@ -1,1 +1,1 @@
-# CurrentNewsBeat
+https://quicknewsflash.weebly.com
